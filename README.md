@@ -92,6 +92,8 @@ This project provided valuable insights into Danny's Diner's operations, helping
 Thank you for reading through my analysis of Danny's Diner.
 If you have any questions or feedback, feel free to reach out!
 
+- **LinkedIn**: [My LinkedIn Profile](https://www.linkedin.com/in/victoria-ojubuyi-02a78b22a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+- **Email**: [Contact me via email](victoriaayoojubuyi@gmail.com)
 
 
 
